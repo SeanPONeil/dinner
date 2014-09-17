@@ -11,7 +11,7 @@ Kron would be down to eat
 * 
 
 Brett would be down to eat  
-* 
-* 
-* 
+* Gyros
+* Bowls of food (like with rice and such)
+* Possibly J. Garden
 
