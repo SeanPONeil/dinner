@@ -15,3 +15,5 @@ Brett would be down to eat
 * Bowls of food (like with rice and such)
 * Possibly J. Garden
 
+We decided on **Taco King** and will get an assortment of tacos, tamales, and sides
+
