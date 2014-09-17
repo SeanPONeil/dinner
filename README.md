@@ -5,13 +5,13 @@ it will also record the history of their meals together
 
 ## September 17th, 2014
 
-Kron would be down to eat
-*
-*
-*
-
-Brett would be down to eat
-*
+Kron would be down to eat  
 * 
-*
+* 
+* 
+
+Brett would be down to eat  
+* 
+* 
+* 
 
